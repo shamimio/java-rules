@@ -1,1 +1,0 @@
- <article></article><input data="dot"><a href="http://tinyurl.com/y9db7yty">Arsenal vs Red Star Belgrade </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
